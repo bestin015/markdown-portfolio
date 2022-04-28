@@ -1,1 +1,15 @@
-Replace this with a list of your favorite things.
+✨ 🖤
+1. Hi
+2. I
+3. am 
+4. Mr
+5. Bestin
+   1. Like
+   2. Me
+* Please
+* note
+* my 
+* name
+  * Here 
+  * I
+  * am
